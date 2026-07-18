@@ -8,7 +8,7 @@
 ---
 
 <p align="center">
-  <b>BAILEY</b>🪷<br>5TEEN
+  <b>TRAVIS</b>🪽<br>5TEEN
 
 
 </p>
